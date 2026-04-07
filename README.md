@@ -1,4 +1,4 @@
-Hi, I’m Maria 👋
+Hi, I’m Maria
 
 I am the owner of a small business specializing in 18th-century historical clothing, where I design, produce, and sell garments rooted in traditional craftsmanship and textile knowledge.
 
